@@ -5,4 +5,5 @@
 <br><br>
 <img src="https://komarev.com/ghpvc/?username=pizzathrow&color=f56918&style=flat-square&label=⠀PIZZAS+THROWN⠀:&base=1000000000"></img>
 
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=veniselim2008&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&bar_color_cover=false&bar_color=d65757"></img>
 </h5>
