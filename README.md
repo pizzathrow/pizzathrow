@@ -1,5 +1,6 @@
 <h5 align="center">
-   Hello pinkie pie Lets have a chat nugu~<br>
+   Hello nugu Lets have a chat~ Don't be shy
+   <br><br>
   <img src="https://github.com/user-attachments/assets/edbd9ef3-50f3-489a-be69-772d58c34984" width="200" height="auto"></img>
   <br><br>
   im not scary plz interact thaaank ^_^ #ilovepizza<br><Br>
