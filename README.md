@@ -1,4 +1,7 @@
 <h5 align="center">
+   Hello pinkie pie Lets have a chat nugu~<br>
+  <img src="https://github.com/user-attachments/assets/edbd9ef3-50f3-489a-be69-772d58c34984" width="200" height="auto"></img>
+  <br><br>
   im not scary plz interact thaaank ^_^ #ilovepizza<br><Br>
 <a href="https://rentry.co/pizzaperson"><img src="https://github.com/user-attachments/assets/2c589352-8a38-4557-a51f-dac4b3a4f164" width="320" height="auto"></img></a>
 
